@@ -5,3 +5,5 @@ The grind never stops, lets keep it going!!.
 
 JULY 01
 New month, new day, same grind!!
+
+JULY 02
