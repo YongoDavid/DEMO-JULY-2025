@@ -8,3 +8,5 @@ New month, new day, same grind!!
 
 JULY 02
 New say, same grind!
+
+JULY 04
