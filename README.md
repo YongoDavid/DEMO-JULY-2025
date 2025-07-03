@@ -7,6 +7,7 @@ JULY 01
 New month, new day, same grind!!
 
 JULY 02
-New say, same grind!
+New day, same grind!
 
 JULY 04
+Back at it again.
