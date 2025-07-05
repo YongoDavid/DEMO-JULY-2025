@@ -16,3 +16,4 @@ JULY 05
 New day same grind.
 
 JULY 06
+Sunday, chill day.
