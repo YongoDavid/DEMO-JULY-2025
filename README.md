@@ -20,3 +20,4 @@ Sunday, chill day.
 Puttiing in Light work.
 
 JULY 07
+New week, new day, same grind.
