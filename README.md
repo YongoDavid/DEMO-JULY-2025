@@ -21,3 +21,5 @@ Puttiing in Light work.
 
 JULY 07
 New week, new day, same grind.
+
+JULY 08
