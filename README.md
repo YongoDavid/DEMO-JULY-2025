@@ -25,5 +25,4 @@ New week, new day, same grind.
 JULY 08
 New day, same grind!!
 
-JULY 09
-
+JULY 10
