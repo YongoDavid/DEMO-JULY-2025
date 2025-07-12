@@ -35,5 +35,4 @@ JULY 12
 New day, more grind.
 
 JULY 13
-
-
+New day, same grind!!.
