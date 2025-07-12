@@ -29,7 +29,7 @@ JULY 10
 New day, same grind.
 
 JULY 11
-New day, same grind!
+Sunday chill day!
 
 JULY 12
 New day, more grind.
