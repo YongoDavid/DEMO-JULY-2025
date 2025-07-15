@@ -45,4 +45,4 @@ JULY 15
 New day, same grind.
 
 JULY 16
-
+New day, same grind.
