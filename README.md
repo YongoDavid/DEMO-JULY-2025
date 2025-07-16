@@ -48,4 +48,4 @@ JULY 16
 New day, same grind.
 
 JULY 17
-
+New dayy, same grind.
