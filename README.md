@@ -61,3 +61,4 @@ Sunday chill day but i am putting in light work.
 
 JULY 21
 New week, new day same grind!!
+putting in more work this week 
