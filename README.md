@@ -60,3 +60,4 @@ JULY 20
 Sunday chill day but i am putting in light work.
 
 JULY 21
+New week, new day same grind!!
