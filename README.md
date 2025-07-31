@@ -82,3 +82,5 @@ Sunday chill day, but still putting on light work.
 JULY 30
 New day, same grind!
 And just like that, Another month has ended.
+Amazing month so far, alot of ups and downs but i still showed up and thats all that matter.
+
